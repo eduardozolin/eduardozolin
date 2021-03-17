@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 🌱 I’m currently a student at @DigitalHouse and @RocketSeat
+- 🌱 I’m currently a student at @DigitalHouseBrasil, @RocketSeat and @Alura-Cursos
